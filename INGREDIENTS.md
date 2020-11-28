@@ -1,0 +1,1 @@
+steel utensil, water,maggi,maggi masala, red chilli powder, bowl,spoon
